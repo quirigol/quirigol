@@ -1,6 +1,12 @@
 # quirigol🤬 
 - Sesi
+
 - Jogador caro
+- 
+
+
+
+
 
 
 
