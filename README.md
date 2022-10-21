@@ -1,4 +1,4 @@
-# Quirimo Jesus
+# Quirimo Jesus 👽  🤬 🥵 
 - Sesi
 
 - Jogador caro
